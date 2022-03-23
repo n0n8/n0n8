@@ -5,7 +5,7 @@
 - I also like helping people getting their shit translated. I know english, and nordic languages.
 - 
 - 📫 How to reach me
-  - Tis more likely to reach you.
+  - Tis more likely I reach you.
 
 <!---
 n0n8/n0n8 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
